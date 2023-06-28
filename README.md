@@ -39,5 +39,5 @@ https://drive.google.com/drive/folders/165Pjmfb9W9PGy0rZjHEA22LW0Lt3YQ8
 -ST depression mostly increases between the age group of 30 40.
 
 ## LinkedIn Post 📲
-
+https://www.linkedin.com/posts/naveenkumar-deivasigamani-51aa9b243_deeplearning-dataanalysis-python-activity-7079916569081892864-1hpu?utm_source=share&utm_medium=member_desktop
 
